@@ -15,3 +15,5 @@ Previously Developer Advocate @ [Algolia](https://www.algolia.com/), Software En
 You can learn more about him and his work on his [website](https://www.bramadams.dev/about/). 
 
 The best way to support his work is to sign up for his newsletter [here](https://www.bramadams.dev/#/portal/).
+
+**Bram's community love language is: livestreaming and newsletters. You can watch him code for The Agentsmiths live [here](https://www.twitch.tv/bramses) and read his newsletter by becoming a member [here](https://www.bramadams.dev/#/portal/)**.
