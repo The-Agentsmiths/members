@@ -17,3 +17,17 @@ You can learn more about him and his work on his [website](https://www.bramadams
 The best way to support his work is to sign up for his newsletter [here](https://www.bramadams.dev/#/portal/).
 
 **Bram's community love language is: livestreaming and newsletters. You can watch him code for The Agentsmiths live [here](https://www.twitch.tv/bramses) and read his newsletter by becoming a member [here](https://www.bramadams.dev/#/portal/)**.
+
+## Russell Foltz-Smith
+
+Simple really.
+
+@un1crom everywhere online.  Sometimes #worksonbecoming
+
+20+ years making commercial knowledge platforms to support his insatiable appetite for knowing everything he possibly can.  mix of start ups, fancy big co's and even an ipo or something.
+
+find out what he probably doesn't know at [Art/Philosophy](www.worksonbecoming.com) and [OG Blog](www.socialmode.org) and on medium or insta or github
+
+cofounder of k-12 school [Acton Venice](www.actonvenice.org)
+
+loves math, drawing, theater, visual arts, reading, books, computers, community, code, drawing, math, painting and everything in between.
